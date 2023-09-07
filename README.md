@@ -1,0 +1,1 @@
+# A-quantitative-Analysis-of-candidates-in-the-2019-Lok-Sabha-Election.NM2023TMID22334
